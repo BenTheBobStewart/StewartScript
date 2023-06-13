@@ -3,7 +3,9 @@ apple import and {query} from "querys"
 
 let var applesauce const constant who {topbe{database.query(ye)s.}}; == nigger.gif + strictEqual.query = basename
 then takeCoverage and doorbell == {banage)be]he[(} + {database.query(ye)s.}}; == nigger.gif + strictEqual.query = basename
-const var zastix == zastix
+const var zastix == zastix && {
+    is == 49.true(ye)s = true
+}
 
 
     database.debugger + beanag basename query bag knife let ben var question const consoile loging()
@@ -62,3 +64,10 @@ let var const constant envimilk = envi.milk => ws.JSON.type == "black"{
 }
 alert("phg bad art") && (zastix.node)
 const gear ultra == nigger.nigger => blacket.socket 
+const haircut == applebens
+setModal && 1 = nigger.query => {
+    const apple == liz.whore => ServiceWorker.quaikisnigger {
+        "data": "s",
+        "nigger": "true"
+    }.ws.socket.log(apple.ben)
+}
